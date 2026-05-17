@@ -1,4 +1,4 @@
-# 
+# Último Adobe Premiere Pro para PC scripts es el mejor Adobe Premiere Pro para PC scripts con animación de texto y sintetizadores. Seguro, confiable y optimizado para el máximo
 
 
 
